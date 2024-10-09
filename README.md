@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @OhshyBear
 - 👀 I’m interested in: Coaching little league Soccer, Fishing, Being a father to the most awsome girl in the world
 - 🌱 I’m currently learning: different Coding languages 
-- 💞️ I’m looking to collaborate on: Anything 
+- 💞️ I’m looking to collaborate on: Anything, I am always looking for more experience
 - 📫 How to reach me: huddleston.trevor@live.com
 - ⚡ Fun fact: People tell me I should be a comedian but I dont like public speaking so I could never pursue it. 
 
