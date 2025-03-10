@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Completing my Bachelors Degree in Computer Science**
 
-- 🌱 I’m currently learning **Java (honestly my favorite language so far) and SQL**
+- 🌱 I’m currently learning **Java (honestly my favorite language so far) and SQL** (uploads coming soon)
 
 - 👯 I’m looking to collaborate on **anything**
 
